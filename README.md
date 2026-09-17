@@ -3,3 +3,6 @@
 
 [LinkedIn](https://www.linkedin.com/in/alanthampi/)
 
+![BI365](BI365.jpeg)
+
+
